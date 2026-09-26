@@ -1,4 +1,5 @@
-[https://tenor.com/view/damon-albarn-blur-alex-james-blur-band-country-house-gif-19443976]
+<img width="498" height="373" alt="damon-albarn-blur" src="https://github.com/user-attachments/assets/02347614-b71c-4a2a-b837-bf588c30d865" />
+
 
 <a href="https://damonizdecaying.atabook.org/?page=1" style="color: red; font-weight: bold;">sign my ata</a>
 <p align="center">
